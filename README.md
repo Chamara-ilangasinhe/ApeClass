@@ -1,2 +1,12 @@
-# ApeClass
-Exam එක ළඟයි, තවමත් Note හොය හොය කාලය නාස්ති කරනවද? දැන්ම එකම තැනකින් ඕනෑම විෂයක Short Notes, Past Papers &amp; Model Papers download කරගන්න ApeClass Learning Hub වෙන පිවිසෙන්න.
+වැඩිපුර ලකුණු ගන්න ලේසිම ක්‍රමය මෙන්න! 📚✨
+​Exam එකට ready වෙන ඔයාටත් එක එක තැන්වල Short Notes, Papers හොයලා එපා වෙලාද?
+දැන් ඒ කිසි දේකට වෙලාව නාස්ති කරන්න ඕන නෑ!
+
+​අපේ Website එකෙන් ඔයාට ලැබෙන දේවල්:
+
+​📝 Short Notes – පාඩම් ලේසියෙන්ම මතක තියාගන්න.
+​📄 Past Papers – විභාග රටාව අඳුරගන්න.
+​🎯 Model Papers – කාලය කළමනාකරණය කරගෙන ලකුණු වැඩි කරගන්න.
+
+​🔗 දැන්ම පිවිසෙන්න: https://apeclass.site.je
+📲 යාලුවන්ටත් Share කරලා උදව් කරන්න!
